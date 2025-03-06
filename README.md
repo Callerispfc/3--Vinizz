@@ -1,1 +1,1 @@
-# 3--Vinizz
+# 3-Vinizz
